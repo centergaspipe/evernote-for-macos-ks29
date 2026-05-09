@@ -1,4 +1,4 @@
-
+Get the ultimate Evernote for macOS plugin with premium Plugin for Evernote for macOS - custom themes and note encryption. Featuring custom themes and note encryption, it's the
 
 
 
